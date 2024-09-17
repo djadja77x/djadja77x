@@ -2,4 +2,4 @@
 - 🌱 I’m currently learning C++, Assembly
 - 📫 Discord: Djadja77x
 - 😄 Pronouns: he/him
-- ⚡ Fun fact: idk
+- ⚡ Fun fact: Im from Germany
